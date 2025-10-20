@@ -3,3 +3,4 @@
 ![IMG-20251020-WA0072.jpg](https://github.com/user-attachments/assets/ce602053-524f-4af1-8287-bfcd1ad0f11c)
 ![IMG-20251020-WA0076.jpg](https://github.com/user-attachments/assets/8bf90316-af06-45c0-84bd-c1d6a56a301c)
 ![IMG-20251020-WA0071.jpg](https://github.com/user-attachments/assets/cbe2cb75-1522-46e3-a490-6682d64a4f97)
+![IMG-20251020-WA0070.jpg](https://github.com/user-attachments/assets/3e078c28-21b2-4146-8864-f783b84bd59c)
